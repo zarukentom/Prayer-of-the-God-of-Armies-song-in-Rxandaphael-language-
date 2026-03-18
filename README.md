@@ -1,6 +1,6 @@
 # Prayer-of-the-God-of-Armies-song-in-Rxandaphael-language-
 
-Prayer Of The God Of Armies Song in Rxandaphael Language, as you listen to the music video below, may God bless you.
+ As you listen to the music video below, may God bless you.
 
 1) Rxandaphael language: Etkal ne Zumkarim, Etkal ne Etkalim, Christos Yesua, Or-Zulielum Varielum-ah! Tona et Blen Thonir ne Varielum. Amenielum.
 
@@ -56,3 +56,6 @@ Amen.
 12) Rxandaphael language: Lumara Se-zula Tona Etkal-ah! ne Tona Blen et Blen.
 
 12) English Translation: We honor you oh God! Your power is so great.
+
+13) 
+https://www.facebook.com/share/v/1DMmo7rJbB/
